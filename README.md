@@ -1,0 +1,1 @@
+# 7-task-jpg-varianti-Jaloliddin-Abdurahmonov
